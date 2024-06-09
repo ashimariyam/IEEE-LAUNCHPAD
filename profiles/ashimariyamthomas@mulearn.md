@@ -1,4 +1,4 @@
-# Ashi mariyam Thomas
+# Ashi Mariyam Thomas
 
 ### About Me
 
